@@ -26,3 +26,4 @@
 #### Contact me
 * [Почта](mailto:ayueliseeva@edu.hse.ru)
 * [Telegram](https://t.me/arinaeliseeva)
+* [VK](https://vk.com/id208463993)
